@@ -1,7 +1,6 @@
 ## changli
 
-![a7371b2ca44841be5eaf12c17c14c5c1](https://github.com/user-attachments/assets/3fc0cf16-c55e-4001-863d-10008ba11b69)
-
+![Uploading cd316d822024c194fa36bc3717785d8d.jpg…]()
 
 ![2bb9daac1e59aba1abbc7339caac7861](https://github.com/user-attachments/assets/6b5ca296-08c1-461a-881a-e6bb597055de)
 
