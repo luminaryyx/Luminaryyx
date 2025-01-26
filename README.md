@@ -1,12 +1,12 @@
+![54d016db5827e726f57280fef46c4928](https://github.com/user-attachments/assets/c1034f78-a459-45ae-a1f2-8f8888510804)
 
-
-![f25197c789b8ad2de1d03a03ca14111d](https://github.com/user-attachments/assets/84079a4c-4493-442e-a771-3d4298e0099d)
 
 
 
 ## GI AND BSD AREA
 
-![4d5cbc811acec84b132d88acbd455ce9](https://github.com/user-attachments/assets/3eedbeaf-edf8-4025-bde6-4086aad98bae)
+![916b60fee456b2f806551887736cbd5b](https://github.com/user-attachments/assets/5f15aff8-8b79-4484-9896-4b14c64eadfe)
 
-![67119dc40cbae1bdd17447bda95a0a94](https://github.com/user-attachments/assets/a92d9dc0-596d-4768-8027-ef5311ec8515)
+
+![fcddba9c0a2aadf9958d45c7efe158ad](https://github.com/user-attachments/assets/d827e908-3d1f-477c-8a75-6261851ae1e9)
 
