@@ -5,10 +5,17 @@
 
 ## GI AND BSD AREA
 
-![bfcd02e432477868d8fac018ce180b25](https://github.com/user-attachments/assets/18068bf7-51a8-446b-a01b-e5f23f50fb61)
+
+![49e19e16e383211cef2bb1d1fc43ee8d](https://github.com/user-attachments/assets/86769a5e-f00e-424b-87a9-6a4bd66fc256)
 
 
 
-![29322ef40e5da4b5b81e747319ffd9e3](https://github.com/user-attachments/assets/265b7a57-68d6-47a7-a343-e7943e73794c)
+
+![dcbf6c9133579c446b980ca024e987fd](https://github.com/user-attachments/assets/04e6b742-2803-4680-a8cb-9fc6bdca115e)
+
+
+
+
+
 
 
