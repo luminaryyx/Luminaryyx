@@ -10,7 +10,6 @@
 ![sdivred2](https://github.com/user-attachments/assets/ccdf250e-fc5e-4485-856d-2d614bc63aa0)
 
 
-[(๑•́ω•̀)](https://open.spotify.com/track/2sV11xuq4U8KlGWKCtGNpx?si=nqu_Jl40Rdu87fOxlk44UA)
 
 
 
