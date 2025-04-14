@@ -4,8 +4,8 @@
 
 
 
+![tumblr_c3aa24b65e447dff2e71b2c95efe9b99_2f634a2a_500](https://github.com/user-attachments/assets/25183fe1-39d0-48ae-90c7-86b86cd021e4)
 
-![3758442af260054fcbe65384cb066271](https://github.com/user-attachments/assets/9be35990-70b7-4cf8-a7e1-8efc20dbd380)
 
 
 
