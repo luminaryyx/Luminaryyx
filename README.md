@@ -1,7 +1,3 @@
 
 
-![289ac86a8b66277d7dacdf66cdd99800](https://github.com/user-attachments/assets/31d13bdc-f139-4b0a-b8dc-bd0472428b31)
-
-
-
-
+![ec68637d947b02a283751712857cafa2](https://github.com/user-attachments/assets/506a72cb-e9b8-4f11-be18-310695e4db36)
